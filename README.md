@@ -1,4 +1,4 @@
-# 小粉红：皇帝大他者中的国家主义中邪综合征
+## 小粉红：皇帝大他者中的国家主义中邪综合征
 
 # Nmslese: Syndrome of Nationalism *Zhong-xie* in the Emperor Other
 
